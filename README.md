@@ -11,3 +11,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: HELICÓPTERO DE BATALHA/BUMBLEBEE
 - ⚡ Fun fact: ...
 - ![](https://tenor.com/bjMz2.gif)
+https://tenor.com/bjMz2.gif
